@@ -1,4 +1,4 @@
-⠀♡⠀⠀⠀peachie,⠀ning(ning)⠀or⠀kitty
+⠀♡⠀⠀⠀peachie,⠀ning(ning)⠀or⠀nursie
 ⠀⠀⠀⠀⠀she⠀chu⠀pup⠀.⠀brazilian
 
 ⠀♡⠀⠀⠀plz dont b mean 2 me im very sensitive . c+h r always encouraged im very nicepilled kindsmaxxer 
