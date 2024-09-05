@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=your-github-username&label=♡+dickriders+♡)
+![](https://komarev.com/ghpvc/?username=your-github-username&label=♡+dickriders+♡&color=dc143c)
 
 ⠀♡⠀⠀⠀peachie,⠀ning(ning)⠀or⠀nursie
 ⠀⠀⠀⠀⠀she⠀chu⠀pup⠀.⠀brazilian
