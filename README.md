@@ -1,4 +1,4 @@
-⠀⠀⠀⠀⠀⠀⠀⠀𓈒⠀⠀𓏸⠀⠀ ࿙ྀ࿚ ⠀⠀🪷  
-⠀⠀⠀⠀⠀⠀⠀![](https://komarev.com/ghpvc/?username=your-github-username&label=dickriders⠀♡&color=FFB4CB&style=flat-square)
+⠀⠀⠀⠀⠀⠀⠀⠀⠀🪷  
+⠀⠀⠀⠀⠀⠀⠀![](https://komarev.com/ghpvc/?username=your-github-username&label=⠀𓈒⠀⠀𓏸⠀⠀&color=FFB4CB&style=flat-square)
 
 
