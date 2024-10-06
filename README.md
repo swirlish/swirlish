@@ -1,1 +1,2 @@
 ![Untitled1224_20240928172210](https://github.com/user-attachments/assets/90542c49-d655-4877-8fc9-2f8f1e01987f)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31mplrsixynas3fsmo36kckq5s4y&cover_image=true&theme=novatorem&show_offline=false&background_color=000000&interchange=false&bar_color=53b14f&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
